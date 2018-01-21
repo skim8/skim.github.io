@@ -1,34 +1,22 @@
-![mahua](mahua-logo.jpg)
-##MaHua是什么?
-一个在线编辑markdown文档的编辑器
+# 段落
 
-向Mac下优秀的markdown编辑器mou致敬
+### 段落标题 
+段落正文
 
-##MaHua有哪些功能？
+### 加粗、斜体
 
-* 方便的`导入导出`功能
-    *  直接把一个markdown的文本文件拖放到当前这个页面就可以了
-    *  导出为一个html格式的文件，样式一点也不会丢失
-* 编辑和预览`同步滚动`，所见即所得（右上角设置）
-* `VIM快捷键`支持，方便vim党们快速的操作 （右上角设置）
-* 强大的`自定义CSS`功能，方便定制自己的展示
-* 有数量也有质量的`主题`,编辑器和预览区域
-* 完美兼容`Github`的markdown语法
-* 预览区域`代码高亮`
-* 所有选项自动记忆
+段落正文
 
+### 列表
 
-##感激
-感谢以下的项目,排名不分先后
+** 无序列表示例：**
 
-* [mou](http://mouapp.com/) 
-* [ace](http://ace.ajax.org/)
-* [jquery](http://jquery.com)
+**有序列表示例：**
 
-##关于作者
+### 区块引用
 
-```javascript
-  var ihubo = {
-    nickName  : "流浪汉",
-  }
-```
+** 普通区块 **
+
+** 嵌套区块 **
+
+# https://tse3-mm.cn.bing.net/th?id=OIP.3XS2A6YTmI0-IgNoHNgR5wHaFR&w=295&h=209&c=7&o=5&dpr=1.75&pid=1.7
