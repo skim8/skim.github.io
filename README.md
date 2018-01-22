@@ -35,3 +35,4 @@
 ![ALT text](https://www.askideas.com/wp-content/uploads/2016/11/High-thoughts-must-have-high-language.-Aristophanes.png)
 ![ALT text](https://blog.thelinguist.com/wp-content/uploads/sites/38/2010/03/Inspirational_quotes_-_language_learning_6.png)
 ![ALT text](http://www.quotehd.com/imagequotes/authors29/jack-herbert-quote-english-is-a-funny-language-a-fat-chance-and-a.jpg)
+![Alt text](https://www.humoropedia.com/wp-content/uploads/2015/02/Leo-Tolstoy-Quotes-1.jpg)
