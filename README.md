@@ -36,3 +36,6 @@
 ![ALT text](https://blog.thelinguist.com/wp-content/uploads/sites/38/2010/03/Inspirational_quotes_-_language_learning_6.png)
 ![ALT text](http://www.quotehd.com/imagequotes/authors29/jack-herbert-quote-english-is-a-funny-language-a-fat-chance-and-a.jpg)
 ![Alt text](https://www.humoropedia.com/wp-content/uploads/2015/02/Leo-Tolstoy-Quotes-1.jpg)
+![2](http://s5.favim.com/orig/69/blue-quotes-sleep-true-Favim.com-643928.jpg)
+![2](http://blog.mrsgs.com/wp-content/uploads/2013/06/sleep_quote.png)
+![2](https://www.askideas.com/media/83/Sleep-is-the-best-meditation.-Dalai-Lama.jpg)
