@@ -53,3 +53,6 @@
 ![](https://qph.ec.quoracdn.net/main-qimg-87833c78a604ff07a82ff7787574e197-c)
 ![](http://www.azquotes.com/picture-quotes/quote-if-you-think-you-understand-quantum-mechanics-you-don-t-understand-quantum-mechanics-richard-p-feynman-84-72-97.jpg)
 ![](http://img.picturequotes.com/2/773/772715/you-cannot-kill-what-you-did-not-create-quote-1.jpg)
+![](http://www.strangehistory.net/blog/wp-content/uploads/2016/01/self-made-man.jpg)
+![](http://www.relatably.com/q/img/made-quotes/quote-William-Cowper-a-self-made-man-yes-and-one-who-75708.png)
+![](http://izquotes.com/quotes-pictures/quote-there-is-no-such-thing-as-a-self-made-man-you-will-reach-your-goals-only-with-the-help-of-others-george-shinn-351399.jpg)
