@@ -1,3 +1,4 @@
+![](http://freshspectrum.com/wp-content/uploads/2012/11/wpid-Photo-Nov-8-2012-607-AM.jpg)
 ![2](http://physicsfacts.com/wp-content/uploads/2013/03/image21.jpg)
 
 ![Alt text](http://cdn.quotesgram.com/img/74/76/1967406961-quote-we-think-basically-you-watch-television-to-turn-your-brain-off-and-you-work-on-your-computer-when-steve-jobs-240912.jpg)
@@ -51,3 +52,4 @@
 ![1](http://cdn.quotesgram.com/img/54/1/718394393-you_think_you_know-124056.jpg)
 ![](https://qph.ec.quoracdn.net/main-qimg-87833c78a604ff07a82ff7787574e197-c)
 ![](http://www.azquotes.com/picture-quotes/quote-if-you-think-you-understand-quantum-mechanics-you-don-t-understand-quantum-mechanics-richard-p-feynman-84-72-97.jpg)
+![](http://img.picturequotes.com/2/773/772715/you-cannot-kill-what-you-did-not-create-quote-1.jpg)
