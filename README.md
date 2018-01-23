@@ -1,3 +1,5 @@
+![2](http://physicsfacts.com/wp-content/uploads/2013/03/image21.jpg)
+
 ![Alt text](http://cdn.quotesgram.com/img/74/76/1967406961-quote-we-think-basically-you-watch-television-to-turn-your-brain-off-and-you-work-on-your-computer-when-steve-jobs-240912.jpg)
              
 ![Alt text](http://cdn.quotesgram.com/img/30/21/1443427380-albert-einstein-physicist-quote-any-man-who-reads-too-much-and-uses-his-own-brain.jpg)
@@ -47,3 +49,5 @@
 ![1](http://img.picturequotes.com/2/502/501730/dont-just-think-do-quote-1.jpg)
 ![1](http://img.picturequotes.com/2/7/6139/life-is-too-short-to-worry-about-what-others-think-do-whatever-you-have-to-do-and-do-it-for-you-quote-1.jpg)
 ![1](http://cdn.quotesgram.com/img/54/1/718394393-you_think_you_know-124056.jpg)
+![](https://qph.ec.quoracdn.net/main-qimg-87833c78a604ff07a82ff7787574e197-c)
+![](http://www.azquotes.com/picture-quotes/quote-if-you-think-you-understand-quantum-mechanics-you-don-t-understand-quantum-mechanics-richard-p-feynman-84-72-97.jpg)
