@@ -56,3 +56,6 @@
 ![](http://www.strangehistory.net/blog/wp-content/uploads/2016/01/self-made-man.jpg)
 ![](http://www.relatably.com/q/img/made-quotes/quote-William-Cowper-a-self-made-man-yes-and-one-who-75708.png)
 ![](http://izquotes.com/quotes-pictures/quote-there-is-no-such-thing-as-a-self-made-man-you-will-reach-your-goals-only-with-the-help-of-others-george-shinn-351399.jpg)
+![](http://www.loveandsayings.com/wp-content/uploads/2014/07/Thats-life.jpeg)
+![](http://www.mactoons.com/wp-content/uploads/2013/09/hope-quote-about-happiness-and-success-that-can-make-you-better-hopeful-quotes-about-life-lesson-930x697.jpg)
+![](http://amritsartemples.in/wp-content/uploads/2013/02/Life-Quotes.jpg)
