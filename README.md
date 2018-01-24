@@ -59,3 +59,6 @@
 ![](http://www.loveandsayings.com/wp-content/uploads/2014/07/Thats-life.jpeg)
 ![](http://www.mactoons.com/wp-content/uploads/2013/09/hope-quote-about-happiness-and-success-that-can-make-you-better-hopeful-quotes-about-life-lesson-930x697.jpg)
 ![](http://amritsartemples.in/wp-content/uploads/2013/02/Life-Quotes.jpg)
+![](http://iheartinspiration.com/wp-content/uploads/2012/03/diet-hungry-bored.jpg)
+![](http://s9.favim.com/610/141024/cravings-food-life-quotes-Favim.com-2176759.jpg)
+![](http://www.lolsotrue.com/memberquotes/2531.jpg)
