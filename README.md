@@ -1,4 +1,5 @@
 ![](http://freshspectrum.com/wp-content/uploads/2012/11/wpid-Photo-Nov-8-2012-607-AM.jpg)
+![3](https://www.truthinsideofyou.org/wp-content/uploads/2015/11/Sleep-is-the-best-meditation_dalai_lama_tiof.jpg)
 
 ![Alt text](http://cdn.quotesgram.com/img/74/76/1967406961-quote-we-think-basically-you-watch-television-to-turn-your-brain-off-and-you-work-on-your-computer-when-steve-jobs-240912.jpg)
              
