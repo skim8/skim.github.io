@@ -130,6 +130,6 @@
 ![](http://www.lovethispic.com/uploaded_images/97474-Make-Mistakes-But-Learn-From-Them.jpg)
 ![](http://learningandcreativity.com/wp-content/uploads/2013/08/Quote-1.png)
 ![](https://tse2.mm.bing.net/th?id=OIP.xudrwZ_MnOeA8l-qet4rtQHaGV&pid=Api)
-[](http://www.thequotepedia.com/images/21/dont-be-afraid-to-make-mistakes-be-afraid-of-not-learning-from-them-mistake-quote.png)
-!(http://www.thequotepedia.com/images/21/dont-be-afraid-to-make-mistakes-be-afraid-of-not-learning-from-them-mistake-quote.png)
+![](http://www.thequotepedia.com/images/21/dont-be-afraid-to-make-mistakes-be-afraid-of-not-learning-from-them-mistake-quote.png)
+
 
