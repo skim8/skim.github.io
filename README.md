@@ -108,5 +108,7 @@
 ![](http://img.picturequotes.com/2/3/2280/love-is-the-child-of-illusion-and-the-parent-of-disillusion-quote-1.jpg)
 ![](http://cdn.quotesgram.com/img/25/86/1719001621-FakeBuddhaQuote.jpg)
 ![](http://purehappylife.com/wp-content/uploads/2014/07/life-quote-obstacle-illusio.jpg)
+![](http://healthythoughts.in/wp-content/uploads/2012/02/optical_illusion_sakuras2b.png)
+![](http://www.brainforests.com/wp-content/uploads/2012/06/Find-the-Mistake.jpg)
 
 
