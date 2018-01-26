@@ -2,7 +2,8 @@
 ![](http://cdn-media-2.lifehack.org/wp-content/files/2014/12/Interstellar-2014-Poster-Wallpaper.jpg)
 ![](http://cdn.quotesgram.com/img/30/51/2068776997-Ludwig_Wittgenstein_quote_by_Philiposophy.jpg)
 ![3](https://www.truthinsideofyou.org/wp-content/uploads/2015/11/Sleep-is-the-best-meditation_dalai_lama_tiof.jpg)
-
+![](http://cdn.wonderfulengineering.com/wp-content/uploads/2014/07/Einstein-Quotes-3.jpg)
+![](http://cdn.wonderfulengineering.com/wp-content/uploads/2014/07/Einstein-Quotes-7.jpg)
 ![Alt text](http://cdn.quotesgram.com/img/74/76/1967406961-quote-we-think-basically-you-watch-television-to-turn-your-brain-off-and-you-work-on-your-computer-when-steve-jobs-240912.jpg)
              
 ![Alt text](http://cdn.quotesgram.com/img/30/21/1443427380-albert-einstein-physicist-quote-any-man-who-reads-too-much-and-uses-his-own-brain.jpg)
@@ -160,5 +161,5 @@
 ![](http://www.iliketoquote.com/img/118.jpg)
 ![](http://favim.com/media/uploads/images/610/140223/happy-memories-quote-smile-Favim.com-1405953.jpg)
 
-
-
+![](http://www.bestsayingsquotes.com/files/genius-quotes-pictures-4-b4411044.jpg)
+![](http://cdn.quotesgram.com/img/95/74/1861619612-the-limit-not-the-sky-motivational-quotes-sayings-pictures.jpg)
