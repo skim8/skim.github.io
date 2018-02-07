@@ -1,4 +1,5 @@
 ![](http://freshspectrum.com/wp-content/uploads/2012/11/wpid-Photo-Nov-8-2012-607-AM.jpg)
+![](https://www.birthdaywishes.expert/wp-content/uploads/2015/07/Sell-your-cleverness-and-buy.jpg)
 ![](http://cdn.quotesgram.com/img/23/88/1745550948-Right-Quote-discipline.gif)
 ![](http://cdn-media-2.lifehack.org/wp-content/files/2014/12/Interstellar-2014-Poster-Wallpaper.jpg)
 ![](http://cdn.quotesgram.com/img/30/51/2068776997-Ludwig_Wittgenstein_quote_by_Philiposophy.jpg)
