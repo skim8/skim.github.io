@@ -1,4 +1,11 @@
 ![](http://freshspectrum.com/wp-content/uploads/2012/11/wpid-Photo-Nov-8-2012-607-AM.jpg)
+
+#you are not your 
+######You are not your thoughts and you are not the product of your thoughts.
+
+![](http://havingtime.com/wp-content/uploads/2016/05/We-are-not-our-feelings.-We-are-not-our-moods.-We-are-not-even-our-thoughts..png)
+![](https://pics.onsizzle.com/you-are-not-your-thoughts-get-out-of-your-own-25353252.png)
+
 ![](https://www.birthdaywishes.expert/wp-content/uploads/2015/07/Sell-your-cleverness-and-buy.jpg)
 
 
