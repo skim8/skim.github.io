@@ -1,8 +1,12 @@
 ![](http://freshspectrum.com/wp-content/uploads/2012/11/wpid-Photo-Nov-8-2012-607-AM.jpg)
 ![](https://www.birthdaywishes.expert/wp-content/uploads/2015/07/Sell-your-cleverness-and-buy.jpg)
+
+
 “All wisdom ends in paradox.”
 
 ― Jeffrey Eugenides, The Virgin Suicides
+
+
 ![](http://img.picturequotes.com/2/436/435579/all-wisdom-ends-in-paradox-quote-1.jpg)
 ![](http://img.picturequotes.com/2/584/583763/do-not-reward-yourself-with-food-youre-not-a-dog-quote-1.jpg)
 ![](http://www.azquotes.com/picture-quotes/quote-i-m-so-confused-it-almost-feels-calm-shane-jones-46-90-26.jpg)
