@@ -1,11 +1,19 @@
 ![](http://freshspectrum.com/wp-content/uploads/2012/11/wpid-Photo-Nov-8-2012-607-AM.jpg)
 
-#you are not your 
-######You are not your thoughts and you are not the product of your thoughts.
+you are not your 
+
+
+You are not your thoughts and you are not the product of your thoughts.
 
 
 “We are not our feelings. We are not our moods. We are not even our thoughts.” – Stephen R.Covey
 
+
+sleep is the best meditation dalai lama
+
+睡觉的时候是没有所谓的“thoughts” 所谓的思考
+![](http://cdn-media-2.lifehack.org/wp-content/files/2013/07/Sleep-is-the-best-meditation..jpg)
+![](http://m.likesuccess.com/quotes/19/918764.png)
 
 
 
