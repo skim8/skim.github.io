@@ -27,6 +27,12 @@ sleep is the best meditation dalai lama
 
 
 
+
+
+action thought 
+
+![](http://d.gr-assets.com/quotes/1398289158p8/319474.jpg)
+
 ![](http://havingtime.com/wp-content/uploads/2016/05/We-are-not-our-feelings.-We-are-not-our-moods.-We-are-not-even-our-thoughts..png)
 ![](https://pics.onsizzle.com/you-are-not-your-thoughts-get-out-of-your-own-25353252.png)
 
