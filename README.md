@@ -11,7 +11,17 @@ You are not your thoughts and you are not the product of your thoughts.
 
 sleep is the best meditation dalai lama
 
-睡觉的时候是没有所谓的“thoughts” 所谓的思考
+2018年02月09日23:30:56
+
+睡觉的时候是没有所谓的“thoughts” 所谓的“想法”，称不上思考二字。思考肯定是大量实践后得到一些经验的结晶整理罢了。
+
+思考 （汉语词语） 编辑
+思考是思维的一种探索活动，思考力则是在思维过程中产生的一种具有积极性和创造性的作用力。
+思考源于主体对意向信息的加工。人之思考是自己心智对意向——信息内容的加工过程。任何思考的进行都是在联想——连锁反映中进行的推理与演算——信息内容的加工。如：相似联想、接近联想、对比联想、因果联想等等。理解来进行思考是必然的。
+
+思考等同于 ipo的 p ,那就是算法了。一个完整的程序 输入，输出，都重要，算法也要借鉴先人经验，总体而言就是做算法也是做，空想妄想都是虚无之辈的神经病罢了。
+
+
 ![](http://cdn-media-2.lifehack.org/wp-content/files/2013/07/Sleep-is-the-best-meditation..jpg)
 ![](http://m.likesuccess.com/quotes/19/918764.png)
 
