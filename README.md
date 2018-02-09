@@ -3,6 +3,12 @@
 #you are not your 
 ######You are not your thoughts and you are not the product of your thoughts.
 
+
+“We are not our feelings. We are not our moods. We are not even our thoughts.” – Stephen R.Covey
+
+
+
+
 ![](http://havingtime.com/wp-content/uploads/2016/05/We-are-not-our-feelings.-We-are-not-our-moods.-We-are-not-even-our-thoughts..png)
 ![](https://pics.onsizzle.com/you-are-not-your-thoughts-get-out-of-your-own-25353252.png)
 
