@@ -1,5 +1,6 @@
 ![](http://freshspectrum.com/wp-content/uploads/2012/11/wpid-Photo-Nov-8-2012-607-AM.jpg)
 ![](https://www.birthdaywishes.expert/wp-content/uploads/2015/07/Sell-your-cleverness-and-buy.jpg)
+![](http://img.picturequotes.com/2/584/583763/do-not-reward-yourself-with-food-youre-not-a-dog-quote-1.jpg)
 ![](http://www.azquotes.com/picture-quotes/quote-i-m-so-confused-it-almost-feels-calm-shane-jones-46-90-26.jpg)
 ![](http://cdn.quotesgram.com/img/23/88/1745550948-Right-Quote-discipline.gif)
 ![](http://cdn-media-2.lifehack.org/wp-content/files/2014/12/Interstellar-2014-Poster-Wallpaper.jpg)
