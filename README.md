@@ -224,6 +224,8 @@ Part Of Me Suspects That I’m A Loser, And The Other Part Of Me Thinks I’m Go
 ![](http://www.linesquotes.com/wp-content/uploads/popular-authors/John-Lennon-Quotes-47-Part-Of-Me-Suspects-That-Im-A-Loser-A...-Quotes.jpg)
 
 
+
+
 bad thoughts good thoughts 
 
 2018年02月10日23:53:00 今天正式命名 命名认识万物 shit thoughts 而不是以前的shit think 挺好的 再看些好图
@@ -234,8 +236,16 @@ bad thoughts good thoughts
 
 how to stop bad thoughts from sabotaging your happiness
 
+
+
+
+
+
+
 ![](http://www.lovethispic.com/uploaded_images/151101-Good-Thoughts-And-Bad-Thoughts.jpg)
+
 ![](https://farm8.staticflickr.com/7487/16025787909_dd65e0df97_z.jpg)
+
 ![](http://cdn.quotesgram.com/img/87/20/2098098631-quote-Willie-Nelson-once-you-replace-negative-thoughts-with-positive-26708.png)
 
 
