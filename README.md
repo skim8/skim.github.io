@@ -234,7 +234,7 @@ bad thoughts good thoughts
 
 how to stop bad thoughts from sabotaging your happiness
 
-![](http://www.lovethispic.com/uploaded_images/151101-Good-Thoughts-And-Bad-Thoughts.jpg
+![](http://www.lovethispic.com/uploaded_images/151101-Good-Thoughts-And-Bad-Thoughts.jpg)
 ![](https://farm8.staticflickr.com/7487/16025787909_dd65e0df97_z.jpg)
 ![](http://cdn.quotesgram.com/img/87/20/2098098631-quote-Willie-Nelson-once-you-replace-negative-thoughts-with-positive-26708.png)
 
