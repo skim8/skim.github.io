@@ -215,3 +215,10 @@ action thought
 ![](http://www.bestsayingsquotes.com/files/genius-quotes-pictures-4-b4411044.jpg)
 ![](http://cdn.quotesgram.com/img/95/74/1861619612-the-limit-not-the-sky-motivational-quotes-sayings-pictures.jpg)
 ![](http://www.highanxieties.org/wp-content/uploads/2014/10/The-Side-Effects-Of-Anxiety.jpg)
+
+
+
+John Lennon Quotes (47) – Part Of Me Suspects That I’m A Loser, A… – Quotes
+Part Of Me Suspects That I’m A Loser, And The Other Part Of Me Thinks I’m God Almighty.
+
+![](http://www.linesquotes.com/wp-content/uploads/popular-authors/John-Lennon-Quotes-47-Part-Of-Me-Suspects-That-Im-A-Loser-A...-Quotes.jpg)
